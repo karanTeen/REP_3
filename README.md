@@ -3,6 +3,6 @@ phir aagaye (step 3)
 
 
 YASHK - yaad rakhna GOA jana hai
-Ye bhadwa Sir elite yahan bhi aa gya .
+PRASHANTR - chutty leli h dec mid ki
+RISHAV - Ye Sir elite yahan bhi aa gya .
 isko goa nhi le jayenge.
-
